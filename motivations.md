@@ -1,0 +1,2 @@
+## Motivations for entering the Turing Program
+My main motivation for entering the Turing program is to have a new career that I can do long term  and  provide for myself and kids.  I have spent the last decade raising children and doing odd short term jobs. I was not fulfilled by the other jobs I had been doing and I still wanted the opportunity to be present for my kids.  I reflected on a time where I was the most fulfilled in  my career prior to having kids and it was working along side developers.  I was thrilled to find the Turing Program.  
